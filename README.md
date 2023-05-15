@@ -1,0 +1,1 @@
+# faridrichard.io
